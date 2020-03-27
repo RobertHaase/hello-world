@@ -1,2 +1,7 @@
 # hello-world
-first repository
+
+Hi Loser!
+
+Good to see u. pls leave rep.
+
+Greets Rober
